@@ -19,4 +19,4 @@
 
 Всего 58 упоминаний
 
-![в](https://pp.userapi.com/c845420/v845420272/6b1f2/qybjq_AO5PU.jpg)
+![в](https://psv4.userapi.com/c848016/u52644341/docs/d17/10cb2bb1edc6/3.png?extra=QgHxMQ3P-m-aU05vIfTr8Vzgp24ik0msoyoqVL_MI_tA8l5YMkQX55tmTfhz2Y3ygGcTwXns-WPGWHSTLFuqonbf4jdoTcRTxmKCqLR4IcGEenAxQFzqhsb0rE5Q-ump4Kfc67JxhQ)
